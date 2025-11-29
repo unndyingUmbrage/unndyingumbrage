@@ -12,4 +12,9 @@ PLEASE, INTERACT. I AM THERE TO SOCIALIZE- NOT TO STAND AROuND LIKE AN IDIOT.
 
 ![](https://files.catbox.moe/vnij90.jpg) <-- MASTERPIECE
 
+![](https://files.catbox.moe/d866g2.webp)
+
+[](https://i.ibb.co/wNzF67J5/Screenshot-20251103-155852-Discord.jpg) 
+HOO HOO. 
+
 ![](https://files.catbox.moe/joy9dv.png) 
